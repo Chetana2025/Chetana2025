@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning strategy
 - 💞️ I’m looking to collaborate on design and strategy and working well with developers
 - 📫 How to reach me @Chetana2025
-- 😄 Pronouns: Chet-na
+- 😄 Pronouns:
 - ⚡ Fun fact: ...
 
 <!---
